@@ -1,6 +1,3 @@
-Perfect. Hum **02-Behavioral** start karte hain.
-
-Ye first 10 questions maine is order me choose kiye hain jo **Amazon, Deloitte, Accenture, TCS, Infosys, Capgemini, Cognizant, Microsoft, Google** sab jagah common hain.
 
 ---
 
